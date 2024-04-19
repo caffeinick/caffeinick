@@ -15,4 +15,4 @@ Here are some ideas to get you started:
 - ⚡ Fun fact: ...
 -->
 
-My Porftolio by Notion ([here](http://bit.ly/3n4J3nh))
+My career by Notion ([here](https://www.notion.so/caffeinickspace/Career-88be5a966a344d21ada48106929b3f15?pvs=4))
